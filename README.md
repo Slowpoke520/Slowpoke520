@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Slowpoke520
+- 👀 I’m interested in game development
+- 🌱 I’m currently learning The C family
+- 📫 How to reach me(dont)
+- ⚡ Fun fact: im 11
